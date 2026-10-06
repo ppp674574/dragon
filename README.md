@@ -5,3 +5,6 @@ Now you may send me data.
 
 -- 9.29---
 I received data that you send to me on 17 sept. please send to my home contact.
+
+-- 10.7---
+Tell my wife to send me any SCI materials she has.
